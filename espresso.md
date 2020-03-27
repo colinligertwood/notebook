@@ -1,6 +1,6 @@
 # ESPRESSO
 
-So I got a little carried away with this. I've only been pulling espresso for four months or so, so take all this with a grain of salt. That said, I like the coffee I'm pulling now, and it wasn't until I learned the things I'm writing about here. The following only works if you have fresh beans, a burr grinder, and are you're using a single-walled (non-pressurized) basket.
+So I got a little carried away with this. I've only been pulling espresso for several months at the time of writing, so take all this with a grain of salt. That said, I like the coffee I'm pulling now, and it wasn't until I learned the things I'm writing about here. The following only works if you have fresh beans, a burr grinder, and are you're using a single-walled (non-pressurized) basket.
 
 ## DOSE
 
