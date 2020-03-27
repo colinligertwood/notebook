@@ -38,6 +38,6 @@ This is what you do to settle the coffee into the basket before tamping. It's ve
 
 ## LINKS
 
-https://www.youtube.com/watch?v=EYWa-jbQBqQ * He's annoying, but some of his tips helped me a lot.
-https://www.fivesenses.com.au/blog/level-even-espresso-distribution/ * Taught me about the importance of distribution in general, and that tapping and banging to settle the coffee is very effective.
-https://arstechnica.com/science/2020/01/the-math-of-brewing-a-better-espresso/ * Taught me to favor coarser grinds for more consistent pulls.
+* https://www.youtube.com/watch?v=EYWa-jbQBqQ * He's annoying, but some of his tips helped me a lot.
+* https://www.fivesenses.com.au/blog/level-even-espresso-distribution/ * Taught me about the importance of distribution in general, and that tapping and banging to settle the coffee is very effective.
+* https://arstechnica.com/science/2020/01/the-math-of-brewing-a-better-espresso/ * Taught me to favor coarser grinds for more consistent pulls.
