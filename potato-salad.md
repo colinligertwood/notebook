@@ -1,5 +1,7 @@
 # Colin's Famous Potato Salad
 
+Yields about 2 litres or 2kg of potato salad.
+
 **For the sauce**
 
 * 1 Cup Mayosaise
