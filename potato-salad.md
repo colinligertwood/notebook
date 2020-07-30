@@ -15,7 +15,7 @@
 * 4 Boiled Eggs
 * 1/4 Cup Green Onions
 
-** Method **
+**Method**
 
 Gently boil the Red Skinned Potatoes whole until they can be easily penetrated with a butterknife (About 15 minutes), then quickly cool under cold water and leave out to cool thoroughly for about an hour. Hard-boil the eggs (about 10-12 minutes).
 
