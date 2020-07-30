@@ -4,8 +4,8 @@ Yields about 2 litres or 2kg of potato salad.
 
 **For the sauce**
 
-* 1 Cup Mayosaise
-* 2 Tbsp Dijon Moustard (Prepared)
+* 1 Cup Mayonaise
+* 2 Tbsp Dijon Mustard (Prepared)
 * 1 Generous Pinch Salt
 * 1/2 Tsp Smoked Paprika
 * 1/4 Tsp Black Pepper
@@ -14,7 +14,7 @@ Yields about 2 litres or 2kg of potato salad.
 
 * 2 Large Dill Pickles
 * 5 Red Skinned Potatoes
-* 4 Boiled Eggs
+* 4 Eggs
 * 1/4 Cup Green Onions
 
 **Method**
@@ -23,6 +23,6 @@ Gently boil the Red Skinned Potatoes whole until they can be easily penetrated w
 
 Prepare the sauce by combining the Mayonaise, Dijon, Paprika, Salt and Pepper in a large bowl and mixing thoroughly with a wooden spoon. Taste and adjust seasoning if needed. Chop up the Dill Pickles into quarter inch chunks and add them to the sauce.
 
-Chop up the potatoes into 1 inch chunks and add to the sauce. Mix in gently with a wooden spoon. Slice the boiled eggs and add them to the sauce, again mixing gently with a wooden spoon. Transfer entire mixture into storage container and flatten the top with a wooden spoon. Dust with a little extra paprika, salt and pepper, and sprinkle green onions over the top.
+Chop up the potatoes into 1 inch chunks and add to the sauce, mixing in gently with a wooden spoon. Slice the boiled eggs and add them to the sauce, again mixing gently with a wooden spoon. Transfer entire mixture into storage container and flatten the top. Dust with a little extra paprika, salt and pepper, and sprinkle green onions over the top.
 
-Seal and chill fridge until serving. Store in the fridge for up to a week.
+Seal and chill until serving. Store in the fridge for up to a week.
