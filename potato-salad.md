@@ -23,6 +23,8 @@ Gently boil the Red Skinned Potatoes whole until they can be easily penetrated w
 
 Prepare the sauce by combining the Mayonaise, Dijon, Paprika, Salt and Pepper in a large bowl and mixing thoroughly with a wooden spoon. Taste and adjust seasoning if needed. Chop up the Dill Pickles into quarter inch chunks and add them to the sauce.
 
-Chop up the potatoes into 1 inch chunks and add to the sauce, mixing in gently with a wooden spoon. Slice the boiled eggs and add them to the sauce, again mixing gently with a wooden spoon. Transfer entire mixture into storage container and flatten the top. Dust with a little extra paprika, salt and pepper, and sprinkle green onions over the top.
+Chop up the potatoes into 1 inch chunks and add to the sauce, mixing in gently with a wooden spoon. Slice the boiled eggs and add them to the sauce, again mixing gently with a wooden spoon.
+
+Transfer entire mixture into storage container and flatten the top. Dust with a little extra paprika, salt and pepper, and sprinkle green onions over the top.
 
 Seal and chill until serving. Store in the fridge for up to a week.
