@@ -1,17 +1,19 @@
 # Colin's Famous Potato Salad
 
 **For the sauce**
-1 Cup Mayosaise
-2 Tbsp Dijon Moustard (Prepared)
-1 Generous Pinch Salt
-1/2 Tsp Smoked Paprika
-1/2 Tsp Black Pepper
+
+* 1 Cup Mayosaise
+* 2 Tbsp Dijon Moustard (Prepared)
+* 1 Generous Pinch Salt
+* 1/2 Tsp Smoked Paprika
+* 1/4 Tsp Black Pepper
 
 **For the salad**
-2 Large Dill Pickles
-5 Red Skinned Potatoes
-4 Boiled Eggs
-1/4 Cup Green Onions
+
+* 2 Large Dill Pickles
+* 5 Red Skinned Potatoes
+* 4 Boiled Eggs
+* 1/4 Cup Green Onions
 
 Gently boil the Red Skinned Potatoes whole until they can be easily penetrated with a butterknife (About 15 minutes), then quickly cool under cold water and leave out to cool thoroughly for about an hour. Hard-boil the eggs (about 10-12 minutes).
 
