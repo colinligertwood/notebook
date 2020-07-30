@@ -15,6 +15,8 @@
 * 4 Boiled Eggs
 * 1/4 Cup Green Onions
 
+** Method **
+
 Gently boil the Red Skinned Potatoes whole until they can be easily penetrated with a butterknife (About 15 minutes), then quickly cool under cold water and leave out to cool thoroughly for about an hour. Hard-boil the eggs (about 10-12 minutes).
 
 Prepare the sauce by combining the Mayonaise, Dijon, Paprika, Salt and Pepper in a large bowl and mixing thoroughly with a wooden spoon. Taste and adjust seasoning if needed. Chop up the Dill Pickles into quarter inch chunks and add them to the sauce.
