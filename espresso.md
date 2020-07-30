@@ -30,6 +30,10 @@ This is what you do to settle the coffee into the basket before tamping. It's ve
 * If the coffee runs blonde in less than 15 seconds, consider a finer grind.
 * If your machine is chocking, and dripping, consider a coarser grind.
 
+## Stir
+
+* Give your espresso a quick stir before drinking to incorporate any grounds or bitter compounds trapped in the crema.
+
 ## MY OWN TIPS
 
 * If you can manually control the timing of pre-infusion, pre-infuse until the coffee starts to pour smoothly.
