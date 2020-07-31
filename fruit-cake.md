@@ -11,11 +11,11 @@ Yields one six cup bundt Cake
 **For the batter**
 
 8 Tbsp Margarine
-1 Cup Granulated Sugar
+1/2 Cup Brown Sugar
 1 1/2 Tsp Baking Powder
+1 Tsp Cinnamon
+1 Tsp Allspice
 1/2 Tsp Salt
-1/2 Tsp Cinnamon
-1/2 Tsp Allspice
 1/2 Tsp Vanilla Extract
 2 Eggs
 2 Cups All Purpose Flour
