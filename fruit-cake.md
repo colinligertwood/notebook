@@ -11,7 +11,7 @@ Yields one six cup bundt Cake
 
 **For the batter**
 
-* 8 Tbsp Margarine
+* 1/2 Cup Margarine
 * 1/2 Cup Demerara Sugar
 * 1 1/2 Tsp Baking Powder
 * 1 Tsp Cinnamon
