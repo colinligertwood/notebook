@@ -7,6 +7,7 @@ Yields one six cup bundt Cake
 * 1 Cup Raisins
 * 1/2 Cup Dried Figs
 * 1/2 Cup Pitted Dates
+* 1/4 Cup Amaro, Bourbon or Brandy
 
 **For the batter**
 
