@@ -11,7 +11,7 @@ Yields one six cup bundt Cake
 **For the batter**
 
 * 8 Tbsp Margarine
-* 1/2 Cup Brown Sugar
+* 1/2 Cup Demerara Sugar
 * 1 1/2 Tsp Baking Powder
 * 1 Tsp Cinnamon
 * 1 Tsp Allspice
@@ -25,7 +25,9 @@ Yields one six cup bundt Cake
 
 Prepare the dried fruit by chopping it up into small raisin sized pieces and soak for a long time in Amaro, Bourbon, or Brandy.
 
-Prepare your bundt pan by greasing liberally with margarine and coating in granulated sugar, and heat your oven to 325f.
+Prepare your bundt pan by greasing liberally with margarine and coating in granulated sugar.
+
+Heat your oven to 325f.
 
 In a stand mixer, cream together the margarine and sugar until light and fluffy. Add salt, baking powder, spices, and vanilla, then beat in the eggs one at a time.
 
