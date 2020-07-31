@@ -33,6 +33,6 @@ In a stand mixer, cream together the margarine and sugar until light and fluffy.
 
 Add the orange juice and flour, and mix just until combined, then fold in the dried fruits. The result should be a very stiff pour batter.
 
-Spoon the batter into your bundt pan and press it down so that it climbs up the sides of the pan, and bake for 50-60 minutes or until it reaches an internal temperature of at least 190f and a butterknife comes out clean.
+Spoon the batter into your bundt pan and press it down so that it climbs up the sides of the pan. Bake for 50-60 minutes or until it reaches an internal temperature of at least 190f and a butterknife comes out clean.
 
-Let the cake cool for 5 minutes before turning out onto a wire rack to cool. While it is still warm, finish the cake with a dusting of castor sugar or an orange glaze.
+Let the cake cool for 5 minutes in the pan before turning out.
