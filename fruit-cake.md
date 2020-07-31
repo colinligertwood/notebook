@@ -1,4 +1,4 @@
-# Colin's Amazing Fruit Cake
+# Colin's Old Fashioned Fruit Cake
 
 Yields one six cup bundt Cake
 
