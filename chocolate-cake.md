@@ -5,7 +5,7 @@ Yields one six cup cake
 **Ingredients**
 
 - 1 Long Double Espresso (50 grams)
-- 3/8 Cup Margarine (75 grams)
+- 1/2 Cup Margarine (75 grams)
 - 1/2 Cup Cocoa Powder
 - 1 Tsp Baking Powder 
 - 1 Cup All Purpose Flour (150 grams)
