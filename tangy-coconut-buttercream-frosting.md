@@ -1,4 +1,4 @@
-# Vegan Cream Cheese Frosting
+# Tangy Coconut Buttercream Frosting (Vegan Creamcheese Icing)
 
 Yields about 2 cups of tangy butter cream frosting.
 
