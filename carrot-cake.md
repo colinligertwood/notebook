@@ -1,5 +1,7 @@
 # Carrot Cake
 
+Yields two 8 inch round cakes.
+
 **For the cake**
 
 * 2 1/4 cups (560 ml) unbleached all-purpose flour
@@ -14,7 +16,6 @@
 * 1/2 cup (125 ml) orange juice
 * 4 cups (1 litre) carrots, peeled and grated
 * 1 cup (250 ml) walnuts, coarsely chopped
-* 1/2 cup (125 ml) dried currants
 
 **For the frosting**
 
