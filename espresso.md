@@ -50,7 +50,7 @@ Over-extracted coffee tastes bitter and acrid. Under-extracted coffee tastes sou
 
 ## Recipes
 
-The coffee I buy and how I extract it in my BES870XL
+The coffee I buy and how I extract it with a BES870XL
 
 **Pallet - Claudia Busamante**
 - Dose 18 grams
