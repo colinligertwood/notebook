@@ -17,7 +17,7 @@ I'm trying to keep this document up to date with the things that have helped me 
 This is what you do to settle the coffee into the basket before tamping. Getting this right can help to reduce channeling and will result in a better brew. The idea is to have an even distribution of coffee in the basket before tamping.
 
 * Lightly groom the coffee into the portafilter to form a very loose puck.
-* Tapping the bottom of the portafilter to help settle the coffee, or lightly tapping down on the counter can help the coffee to settle.
+* Tap the bottom of the portafilter with your hand, or lightly tap down on the counter to help settle the coffee in the basket.
 * Using a distribution tool can help to consistently distribute and level the top.
 
 ## Tamping
@@ -29,7 +29,7 @@ Over-extracted coffee tastes bitter and acrid. Under-extracted coffee tastes sou
 
 ## Stir
 
-* Give your espresso a quick stir before drinking to incorporate any grounds or bitter compounds trapped in the crema.
+* Give the espresso a quick stir before drinking to incorporate any grounds or bitter compounds trapped in the crema.
 
 ## My own tips
 
@@ -41,7 +41,7 @@ Over-extracted coffee tastes bitter and acrid. Under-extracted coffee tastes sou
 * https://www.youtube.com/channel/UCMb0O2CdPBNi-QqPk5T3gsQ - James Hoffman's youtube channel is all you need.
 * https://www.youtube.com/watch?v=EYWa-jbQBqQ - He's annoying, but some of his tips helped me a lot.
 * https://www.fivesenses.com.au/blog/level-even-espresso-distribution/ - Taught me about the importance of distribution in general, and that tapping and banging to settle the coffee is very effective.
-* https://arstechnica.com/science/2020/01/the-math-of-brewing-a-better-espresso/ - Taught me to favor coarser grinds for more consistent pulls.
+* https://arstechnica.com/science/2020/01/the-math-of-brewing-a-better-espresso/ - An interesting bunch of ideas about how to pull very consistently, but probably at the cost of flavor. It's acknowledged in the paper that pulling coarser grinds probably results in a less subjectively pleasant extraction.
 
 ## Things I use
 
