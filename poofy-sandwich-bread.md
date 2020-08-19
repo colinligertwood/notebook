@@ -12,8 +12,8 @@ Yields one large pan loaf.
 * 36g Brown Sugar
 * 10g Kosher Salt
 * 42g Softened Butter
-* 1 Egg (for the egg wash
-)
+* 1 Egg (for the egg wash)
+
 **Method**
 
 Mix flour and water, and let autolyse for at least 30 minutes.
