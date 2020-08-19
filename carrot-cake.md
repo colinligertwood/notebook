@@ -22,12 +22,12 @@ Yields two 8 inch round cakes.
 
 A detail not to overlook: we specify not to butter the pan, otherwise the cake loses volume as it cools and becomes deformed as it shrinks in the pan.
 
-With the rack in the middle position, preheat the oven to 180 °C (350 °F). Line two 20-cm (8-inch) springform pans with parchment paper. Do not butter the pans.
-
-In a bowl, combine the flour, baking powder, baking soda, spices, and salt. Set aside.
-
-In another bowl, beat the egg whites with an electric mixer until frothy. Gradually add 250 ml (1 cup) of brown sugar and beat until the meringue forms stiff peaks. Set aside.
-
-In another bowl, combine the egg yolks, oil, orange juice and the remaining brown sugar (180 ml / 3/4 cup) with a whisk. Gently stir in the dry ingredients. With a spatula, gently fold in the meringue followed by the carrots, walnuts and currants.
-
-Divide the batter among the pans. Bake for about 1 hour and 15 minutes or until a toothpick inserted in the centre of the cake comes out clean. Cool in the pan on a rack. Run the blade of a knife around the cakes and unmould. 
+1. With the rack in the middle position, preheat the oven to 180 °C (350 °F).
+2. Line two 20-cm (8-inch) springform pans with parchment paper. Do not butter the pans.
+3. In a bowl, combine the flour, baking powder, baking soda, spices, and salt.
+4. In another bowl, beat the egg whites with an electric mixer until frothy. Gradually add 250 ml (1 cup) of brown sugar and beat until the meringue forms stiff peaks.
+5. In another bowl, combine the egg yolks, oil, orange juice and the remaining brown sugar (180 ml / 3/4 cup) with a whisk.
+6. Add the dry ingredients and combine with a rubber spatula.
+7. Gently fold in the meringue followed by the carrots, walnuts and currants.
+8. Divide the batter among the pans. Bake for about 1 hour and 15 minutes or until a toothpick inserted in the centre of the cake comes out clean.
+9. Cool in the pan on a rack. Run the blade of a knife around the cakes and unmould. 
