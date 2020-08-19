@@ -16,13 +16,14 @@ Yields one large pan loaf.
 
 **Method**
 
-1. Mix flour and water, and let autolyse for at least 30 minutes.
-2. Add honey, yeast and salt, and mix using stand mixer with dough hook attachment for 10 minutes.
-3. Add butter gradually and knead for another 5 minutes, or until butter is fully incorporated.
-4. Knead on medium-low speed for 12-15 minutes.
-5. Cover and let rest at a warm temp for 30 minutes.
-6. Punch down, shape and transfer to greased 9×5 loaf pan.
-7. Allow to rise at a warm temp for 30 minutes, or until about doubled in size.
-8. Beat egg and brush over the top of the dough, then sprinkle with kosher salt and oat flakes.
-9. Bake at 350F for 25 minutes, then cover with foil and bake for another 10-15 minutes.
+1. Whisk together flour mixture.
+2. Mix in water to form a dough, and let autolyse for at least 30 minutes.
+3. Add honey, sugar, salt, and yeast, and mix using stand mixer with dough hook attachment for 10 minutes.
+4. Add butter gradually and knead for another 5 minutes, or until butter is fully incorporated.
+5. Knead on medium-low speed for 15 minutes, or until dough passes the windowpane test.
+6. Cover and let rest at a warm temp for 30 minutes.
+7. Punch down, shape and transfer to greased 9×5 loaf pan.
+8. Allow to rise at a warm temp for 30 minutes, or until about doubled in size.
+9. Beat egg and brush over the top of the dough, then sprinkle with kosher salt and oat flakes.
+10. Bake at 350F for 25 minutes, then cover with foil and bake for another 10-15 minutes.
 
