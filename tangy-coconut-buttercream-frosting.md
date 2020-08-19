@@ -1,19 +1,18 @@
 # Tangy Coconut Buttercream Frosting (Vegan Creamcheese Icing)
 
-Yields about 2 cups of tangy butter cream frosting.
+Yields enough frosting to cover one layer of a round 8 inch cake.
 
 **Ingredients**
 
-* 2 Cups Icing Sugar
 * 1/4 Cup Margarine
-* 2 Tbsp Coconut Cream (just the fat)
-* 3/4 Tsp Apple Cider Vinegar
 * 1/4 Tsp Salt
+* 3/4 Tsp Apple Cider Vinegar
+* 2 Cups Icing Sugar
+* 2 Tbsp Coconut Cream (just the fat)
 
 **Method**
 
-Crumb together the margarine and icing sugar with a whisk.
+1. In a mixing bowl, whisk the margarine, salt, and vinegar, until light and fluffy.
+2. Sift in the icing sugar through a fine strainer, and whisk until creamy and smooth.
+3. Gradually whisk in the coconut cream until desired consistency is reached.
 
-Add the remaining ingredients and fold with a spatula until creamy.
-
-Adjust mixture for consistency and seasoning.
