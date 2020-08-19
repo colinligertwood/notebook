@@ -2,7 +2,7 @@
 
 Yields two 8 inch round cakes.
 
-**For the cake**
+**Ingredients**
 
 * 2 1/4 cups (560 ml) unbleached all-purpose flour
 * 1 1/2 tsps (7.5 ml) baking powder
