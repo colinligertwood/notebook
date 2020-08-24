@@ -1,4 +1,4 @@
-# Colin's delicious country loaf
+# Colin's Delicious Country Loaf
 
 Yields 1 loaf
 

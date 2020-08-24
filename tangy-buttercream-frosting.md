@@ -11,7 +11,7 @@ Yields enough frosting to cover a round 8 inch cake.
 
 **Method**
 
-1. In a mixing bowl, whisk the margarine, salt, and vinegar, until light and fluffy.
-2. Sift in the icing sugar through a fine strainer, and whisk until creamy and smooth.
-3. Adjust sugar to achieve desired consistency.
+1. In a stand mixer, whisk the margarine, salt, and vinegar, until light and fluffy.
+2. Sift in the icing sugar through a fine strainer, and whisk for several minutes, until creamy and smooth.
+3. Add more icing sugar to stiffen if necessary.
 
