@@ -11,7 +11,7 @@ Yields 1 loaf
 
 **Method**
 
-2. Disolve the salt salt into 340ml of the water.
+1. Disolve the salt salt into 340ml of the water.
 2. Sift the flour into a bowl and add the salted water. Combine into a shaggy dough, cover, and leave to rest for 30 minutes.
 3. About 15 minutes later add the remaining 45ml of the water to your yeast, and leave to hydrate.
 4. Once the yeast has started to foam up, add it to the dough and pinch and kneed until it is fully incorporated.
