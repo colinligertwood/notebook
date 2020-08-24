@@ -4,19 +4,19 @@ Yields 2 eight inch round cake pans
 
 **Ingrendients**
 
-* 3 1/2 cups unbleached all-purpose flour
-* 3 tsp baking powder
+* 2 1/2 cups unbleached all-purpose flour
+* 2 tsp baking powder
 * 1/2 tsp baking soda
 * 1/2 tsp salt
 * 1/2 tsp allspice powder
 * 1 tsp cinnamon
-* 4 ripe bananas
-* 1 cup unsalted butter, softened
-* 1/2 cup canola oil
-* 3 cups sugar
+* 3 ripe bananas
+* 3/4 cup unsalted butter, softened
+* 1/4 cup canola oil
+* 2 cups sugar
 * 1 tsp vanilla extract
-* 4 eggs  
-* 1 1/2 cups milk
+* 3 eggs  
+* 1 cup milk
 
 **Method**
 
@@ -27,5 +27,5 @@ Yields 2 eight inch round cake pans
 5. In another bowl, cream the butter with the oil, sugar, and vanilla with an electric mixer.
 6. Add the eggs, one at a time and beat until incorporated.
 7. At low speed, add the dry ingredients alternately with the milk and bananas.
-8. Bake for about 1 hour and 15 minutes or until a toothpick inserted in the centre of the cake comes out clean.
+8. Bake for about 45 minutes or until a toothpick inserted in the centre of the cake comes out clean.
 
