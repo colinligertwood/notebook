@@ -1,10 +1,10 @@
 # Colin's Delicious Country Loaf
 
-Yields 1 loaf
+Yields one 800g batard
 
 **Ingredients**
 
-* 500g Fancy stone milled sifted red spring wheat flour (or whole wheat that you've sifted)
+* 500g Fancy stone milled sifted red spring wheat flour (or whole wheat that you've sifted, or bread flour, or all purpose flour)
 * 385ml(g) Water
 * 12g Salt
 * 5g Active yeast, (or 3g of instant)
