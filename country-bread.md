@@ -16,11 +16,11 @@ Yields 1 loaf
 3. About 15 minutes later add the remaining 45ml of the water to your yeast, and leave to hydrate.
 4. Once the yeast has started to foam up, add it to the dough and pinch and kneed until it is fully incorporated.
 5. Kneed the dough with the slap and fold method for at least 15 minutes, until you get a good windowpane test result. It likely won't be completely transparent, but that's ok.
-6. Cover and leave to rise in the oven with the light on for abou 30 minutes, or until dough roughly doubles in size.
+6. Cover and leave to rise in the oven with the light on for about 30 minutes, or until dough roughly doubles in size.
 7. Shape the dough into a batard, and transfer into a banneton. Cover and leave for a final proof, about 30 minutes.
 8. Transfer the banneton into the fridge and chill for at least an hour.
 9. Place a cast iron dutch oven into the oven with the lid by its side, and heat to 450f.
-10. When Remove the banneton from the fridge, turn out, transfer into the hot dutch oven, and score.
+10. Remove the banneton from the fridge, turn out the dough, transfer into the hot dutch oven, and score.
 11. Bake with the lid on for 30 minutes, then remove the lid and bake until a dark crust forms. About another 15 minutes.
 12. Remove from the oven and cool on a wire rack, or on a bread board on its side for at least an hour before cutting.
 
