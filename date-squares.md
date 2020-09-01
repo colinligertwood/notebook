@@ -1,6 +1,7 @@
 # Date Squares
 
 **Ingredients**
+
 *For the filling*
 
 * 500g Pitted dates
