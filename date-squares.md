@@ -1,6 +1,7 @@
 # Date Squares
 
-**Ingredients for the filling**
+**Ingredients**
+*For the filling*
 
 * 500g Pitted dates
 * 1 cup water
@@ -8,7 +9,7 @@
 * 2 tbsp brown sugar
 * 1/2 tsp baking soda
 
-**Ingredients for the crumble**
+*For the crumble*
 
 * 175g quick-cooking oats
 * 150g unbleached all-purpose flour
