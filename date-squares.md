@@ -4,7 +4,7 @@
 
 *For the filling*
 
-* 500g Pitted dates
+* 400g Pitted dates
 * 1 cup water
 * 2 tbsp lemon juice
 * 2 tbsp brown sugar
