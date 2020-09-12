@@ -23,3 +23,9 @@ Yields 8 large waffles.
 6. In third bowl, beat the egg whites with an electric mixer until soft peaks form, about 1 minute.
 7. Using the rubber spatula, gently fold the egg whites into the waffle batter. Do not overmix!
 8. Grease the waffle iron and pour enough batter in iron to just cover waffle grid. Close and cook until jets of steam slow down. Serve immediately.
+
+**Tips**
+
+* Allow waffles to cool and dry out slightly in a warm oven, then freeze.
+* Reheat soft or frozen waffles in the iron until crisp.
+
