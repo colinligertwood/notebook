@@ -1,6 +1,6 @@
 # Waffles
 
-Yields some waffles
+Yields 8 large waffles.
 
 **Ingredients**
 
