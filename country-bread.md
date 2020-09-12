@@ -6,7 +6,7 @@ Yields one 700g batard
 
 * 400g Flour (any high protein flour or blend will do)
 * 300g Warm water
-* 10g Salt
+* 8g Salt
 * 5g Active dry yeast, (or 3g of instant)
 
 **Method**
