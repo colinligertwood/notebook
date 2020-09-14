@@ -19,7 +19,7 @@ Yields one six cup bundt Cake
 * 1/2 Tsp Salt
 * 1/2 Tsp Vanilla Extract
 * 2 Eggs
-* 2 Cups All Purpose Flour
+* 2 Cups Cake Flour
 * 1/2 Cup Orange Juice
 
 **Method**
