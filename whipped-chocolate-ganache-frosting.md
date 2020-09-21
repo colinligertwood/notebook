@@ -1,4 +1,4 @@
-# Colin's Whipped Chocolate Coconut Ganache Frosting
+# Colin's Whipped Chocolate Ganache Frosting
 
 Yields about 500mls of chocolate ganache frosting
 
