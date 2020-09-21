@@ -1,4 +1,4 @@
-# Colin's Famous Chocolate Cake
+# Chocolate Bundt Cake
 
 Yields one six cup bundt cake. This recipe is not suitable for standard cake tins and will come out very dense and dry.
 
