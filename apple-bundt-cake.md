@@ -14,7 +14,7 @@ Yields 1 six-cup bundt cake.
 - 2 large eggs
 - 125g brown sugar
 - 50g granulated sugar
-- 120g full fat coconut milk
+- 120g full fat coconut milk solids (leave a can of Aroy'd in the fridge overnight)
 - 1/2 tsp apple cider vinegar
 - 1/2 tbsp vanilla extract
 - 150ml canola oil
