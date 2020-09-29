@@ -8,16 +8,16 @@ Yields 1 six-cup bundt cake.
 - 190g cake flour
 - 3/4 tsp baking soda
 - 2 tsp ground cinnamon
-- 1/2 tsp ground allspice
+- 1/4 tsp ground allspice
 - 1/4 tsp ground nutmeg
 - 1/4 tsp salt
-- 150ml canola oil
-- 120g full fat coconut milk
-- 1/2 tsp apple cider vinegar
+- 2 large eggs
 - 125g brown sugar
 - 50g granulated sugar
-- 2 large eggs
+- 120g full fat coconut milk
+- 1/2 tsp apple cider vinegar
 - 1/2 tbsp vanilla extract
+- 150ml canola oil
 
 **Method**
 
@@ -27,5 +27,5 @@ Yields 1 six-cup bundt cake.
 4. In another bowl, cream the oil, coconut, sugar, vinegar, vanilla and eggs.
 5. Pour the wed ingredients into the dry, and whisk just until no large lumps remain.
 6. Gently fold in the apple chunks.
-7. Spoon batter into the bundt pan, and bake for 35-45 minutes.
+7. Spoon batter into the bundt pan, and bake for about 45 minutes, or until a skewer comes out clean.
 8. Let cake cool in the pan for 5 minutes before turning out.
