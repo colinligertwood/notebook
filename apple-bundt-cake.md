@@ -23,7 +23,7 @@ Yields 1 six-cup bundt cake.
 
 1. Prepare a 6 cup bund pan with margarine and a dusting of sugar.
 2. Heat oven to 325&deg;f.
-3. Whisk or sieve together the flour, baking powder, cinnamon, nutmeg, and salt.
+3. Whisk or sieve together the flour, baking powder, spices, and salt.
 4. In another bowl, cream the oil, coconut, sugar, vinegar, vanilla and eggs.
 5. Pour the wet ingredients into the dry, and whisk just until no large lumps remain.
 6. Gently fold in the apple chunks.
