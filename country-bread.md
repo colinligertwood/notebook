@@ -11,10 +11,9 @@ Yields one 700g batard
 
 **Method**
 
-1. Disolve the salt into 260ml of the water.
-2. Sift the flour into a bowl and add the salted water. Combine into a shaggy dough, cover, and leave to rest for 30 minutes.
+2. Sift the flour into a bowl and add 260 grams of the water. Combine into a shaggy dough, cover, and leave to rest for 30 minutes.
 3. About 15 minutes later dissolve the yeast to the remaining 40ml of the water and leave to hydrate.
-4. Once the yeast has started to foam up, add it to the dough and pinch and kneed until it is fully incorporated.
+4. Once the yeast has started to foam up, add it and the salt to the dough and pinch and kneed until it is fully incorporated.
 5. Kneed the dough with a stand mixer, or by using the slap and fold method, for at least 15 minutes. You're looking for a good windowpane test result.
 6. Cover and leave in the oven with the light on for about 30 minutes, or until dough roughly doubles in size.
 7. Shape the dough into a batard, and transfer into a banneton for final proving. I recommend doing the final prove in the fridge.
