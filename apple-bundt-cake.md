@@ -26,7 +26,7 @@ Yields 1 six-cup bundt cake.
 3. In a large bowl, whisk or sieve together the flour, baking powder, spices, and salt.
 4. In another bowl, cream the eggs, sugar, coconut cream, vinegar, and vanilla.
 5. Slowly add the oil to the wet mixture while whisking until fully incorporated.
-6. Pour the wet ingredients into the dry, and mix just until combined, and no large lumps remain.
+6. Pour the wet ingredients into the dry and mix until just combined, and no large lumps remain.
 7. Gently fold in the apple chunks.
 8. Spoon batter into the bundt pan, and bake for about 45 minutes, or until a skewer comes out clean.
 9. Let cake cool in the pan for 5 minutes before turning out.
