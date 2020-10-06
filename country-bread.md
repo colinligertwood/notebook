@@ -20,5 +20,5 @@ Yields one 700g batard
 8. About 20 minutes before the bread has fully proved, place a cast iron dutch oven into the oven with the lid by its side, and heat to 450f.
 9. Turn out the dough onto a piece of parchment paper, transfer into the hot dutch oven, and score.
 10. Bake with the lid on for 15 minutes, then remove the lid and bake until a dark crust forms. About another 15 minutes.
-11. Remove from the oven and on its side for at least an hour before cutting.
+11. Remove from the oven and cool on its side for at least an hour before cutting.
 
