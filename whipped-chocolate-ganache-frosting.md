@@ -4,10 +4,10 @@ Yields about 500mls of chocolate ganache frosting
 
 **Ingredients**
 
-* 350g Dark Chocolate
-* 250g Coconut Cream (Just the solids after leaving a can of Aroy'd in the fridge overnight)
-* 1 Tsp Vanilla
-* 1/2 Tsp Salt
+* 350g dark chocolate
+* 250g coconut milk solids (Leave a can of Aroy'd in the fridge overnight)
+* 1 tsp vanilla
+* 1/2 tsp salt
 
 **Method**
 

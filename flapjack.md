@@ -4,12 +4,12 @@ Yields 4 large pucks.
 
 **Ingredients**
 
-* 175g Large flake oats
-* 20g All purpose flour
+* 175g large flake oats
+* 20g all purpose flour
 * Handfull of seeds and other delicious things
-* 100g Butter, or buttery bargarine
-* 150g Demerara sugar, or brown Sugar
-* 50g Pure maple syrup
+* 100g butter, or buttery margarine
+* 150g demerara sugar, or brown Sugar
+* 50g pure maple syrup
 * Pinch of salt
 
 **Method**

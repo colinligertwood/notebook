@@ -4,23 +4,23 @@ Yields one six cup bundt Cake
 
 **For the fruit**
 
-* 1 Cup Raisins
-* 1/2 Cup Dried Figs
-* 1/2 Cup Pitted Dates
-* 1/4 Cup Amaro, Bourbon or Brandy
+* 1 cup raisins
+* 1/2 cup dried figs
+* 1/2 cup pitted dates
+* 1/4 cup amaro, bourbon or brandy
 
 **For the batter**
 
-* 1/2 Cup Margarine
-* 1/2 Cup Demerara Sugar
-* 1 1/2 Tsp Baking Powder
-* 1 Tsp Cinnamon
-* 1 Tsp Allspice
-* 1/2 Tsp Salt
-* 1/2 Tsp Vanilla Extract
-* 2 Eggs
-* 2 Cups Cake Flour
-* 1/2 Cup Orange Juice
+* 1/2 cup margarine
+* 1/2 cup demerara sugar
+* 1 1/2 tsp baking powder
+* 1 tsp cinnamon
+* 1 tsp allspice
+* 1/2 tsp salt
+* 1/2 tsp vanilla extract
+* 2 eggs
+* 2 cups cake flour
+* 1/2 cup orange juice
 
 **Method**
 

@@ -4,15 +4,15 @@ Yields one large pan loaf.
 
 **Ingredients**
 
-* 165g Whole Wheat Flour
-* 255g Bread Flour (or All-Purpose Flour)
-* 270g Water (Preferably around 100 degrees F)
-* 4g Instant Yeast (or 6 grams active yeast)
-* 32g Honey
-* 36g Brown Sugar
-* 10g Kosher Salt
-* 42g Softened Butter
-* 1 Egg (for the egg wash)
+* 165g whole wheat flour
+* 255g bread flour (or all-purpose flour)
+* 270g water (preferably around 100 degrees F)
+* 4g instant yeast (or 6 grams active yeast)
+* 32g honey
+* 36g brown sugar
+* 10g kosher salt
+* 42g softened butter
+* 1 egg (for the egg wash)
 
 **Method**
 

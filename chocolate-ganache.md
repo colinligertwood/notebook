@@ -4,10 +4,10 @@ Yields about 300mls of syrupy ganache
 
 **Ingredients**
 
-* 250g Dark Chocolate
-* 75ml Full Fat Cocotun Milk (Aroy'd)
-* 1 Tsp Vanilla
-* 1/2 Tsp Salt
+* 250g dark chocolate
+* 75ml full fat coconut milk (Aroy'd)
+* 1 tsp vanilla
+* 1/2 tsp salt
 
 **Method**
 

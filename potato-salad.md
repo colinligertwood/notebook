@@ -4,11 +4,11 @@ Yields about 2 litres or 2kg of potato salad.
 
 **For the sauce**
 
-* 1 Cup Mayonaise
-* 2 Tbsp Dijon Mustard (Prepared)
-* 1 Generous Pinch Salt
-* 1/2 Tsp Smoked Paprika
-* 1/4 Tsp Black Pepper
+* 1 cup mayonaise
+* 2 tbsp dijon mustard (prepared)
+* 1 generous pinch salt
+* 1/2 tsp smoked paprika
+* 1/4 tsp black pepper
 
 **For the salad**
 

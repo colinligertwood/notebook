@@ -4,17 +4,17 @@ Yields one six cup bundt cake. This recipe is not suitable for standard cake tin
 
 **Ingredients**
 
-* 40g Espresso
-* 140g Cup Margarine
-* 70g Cocoa Powder
-* 1/4 Tsp Fine Table Salt
-* 300 Cup Granulated Sugar
-* 240g Cake Flour
-* 1 Tsp Baking Powder 
-* 1 Large Egg
-* 1 Egg Yolk
-* 80g Coconut Milk Fat (just the solid portion after leaving a can of Aroy'd in the fridge overnight)
-* 1 Tsp Vanilla
+* 40g espresso
+* 140g cup margarine
+* 70g cocoa powder
+* 1/4 tsp fine table salt
+* 300 cup granulated sugar
+* 240g cake flour
+* 1 tsp baking powder 
+* 1 large egg
+* 1 egg yolk
+* 80g coconut milk solids (just the solid portion after leaving a can of Aroy'd in the fridge overnight)
+* 1 tsp vanilla
 
 **Method**
 
