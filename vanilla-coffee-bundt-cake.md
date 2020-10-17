@@ -14,7 +14,7 @@ Yields 1 six-cup bundt cake.
 * 1/4 cup canola oil
 * 1/2 cup milk
 
-**Optional Ingredients**
+*Optional*
 
 * 1 tsp instant coffee powder (optional)
 * 1/2 tsp ground cinnamon
