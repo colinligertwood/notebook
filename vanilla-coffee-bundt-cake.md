@@ -9,7 +9,7 @@ Yields 1 six-cup bundt cake.
 * 1/2 tbsp baking powder
 * 1/2 tsp salt
 * 2 medium eggs
-* 100g sugar
+* 200g sugar
 * 1 tsp vanilla
 * 1/4 cup canola oil
 * 1/2 cup milk
