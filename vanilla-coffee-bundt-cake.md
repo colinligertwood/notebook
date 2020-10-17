@@ -2,7 +2,7 @@
 
 Yields 1 six-cup bundt cake.
 
-*Ingredients*
+**Ingredients**
 
 * 125g all purpose flour
 * 75g cake flour
@@ -14,7 +14,7 @@ Yields 1 six-cup bundt cake.
 * 1/2 cup milk
 * 1 ristretto espresso shot (optional)
 
-*Method*
+**Method**
 
 1. Heat the oven to 350&deg;f.
 2. Prepare a six-cup bundt pan with margarine and a heavy dusting of caster sugar.
