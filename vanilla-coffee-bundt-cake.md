@@ -13,7 +13,7 @@ Yields 1 six-cup bundt cake.
 * 1 tsp vanilla
 * 1/4 cup canola oil
 * 1/2 cup milk
-* 1 ristretto espresso shot (optional)
+* 1 ristretto espresso shot or 1 tsp instant coffee powder (optional)
 
 **Method**
 
