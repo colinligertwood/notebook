@@ -4,15 +4,15 @@ Yields 1 six-cup bundt cake.
 
 **Ingredients**
 
-* 150g all purpose flour
+* 160g all purpose flour
 * 50g cake flour
-* 1/2 tbsp baking powder
+* 2 tsp baking powder
 * 1/2 tsp salt
-* 2 medium eggs
-* 225g sugar
+* 2 eggs
+* 245g sugar
 * 1 tsp vanilla
-* 1/4 cup canola oil
-* 1/2 cup milk
+* 1/3 cup canola oil
+* 2/3 cup milk
 
 *Optional*
 
