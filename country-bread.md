@@ -1,4 +1,4 @@
-# Colin's Delicious Country Loaf
+# Country Bread
 
 Yields one 700g batard
 
@@ -7,18 +7,22 @@ Yields one 700g batard
 * 400g bread flour
 * 300g warm water
 * 8g salt
-* 5g active dry yeast, (or 3g of instant)
+* 3g of instant yeast
 
 **Method**
 
-2. Sift the flour into a bowl and add 260 grams of the water. Combine into a shaggy dough, cover, and leave to rest for 30 minutes.
-3. About 15 minutes later dissolve the yeast to the remaining 40ml of the water and leave to hydrate.
-4. Once the yeast has started to foam up, add it and the salt to the dough and pinch and kneed until it is fully incorporated.
-5. Kneed the dough with a stand mixer, or by using the slap and fold method, for at least 15 minutes. You're looking for a good windowpane test result.
-6. Cover and leave in the oven with the light on for about 30 minutes, or until dough roughly doubles in size.
-7. Shape the dough into a batard, and transfer into a banneton for final proving. I recommend doing the final prove in the fridge.
-8. About 20 minutes before the bread has fully proved, place a cast iron dutch oven into the oven with the lid by its side, and heat to 450f.
-9. Turn out the dough onto a piece of parchment paper, transfer into the hot dutch oven, and score.
-10. Bake with the lid on for 15 minutes, then remove the lid and bake until a dark crust forms. About another 15 minutes.
-11. Remove from the oven and cool on its side for at least an hour before cutting.
+1. Sift the flour into a bowl and add 300 grams of the water. Combine into a thoroughly moist dough, cover with a wet towel, and let rest for 30 minutes.
+3. Add the salt and yeast to the dough and pinch and kneed until to incorporate.
+4. Kneed the dough by folding it over itself with a bench scraper for at least 15 minutes. Be careful no to tear the dough as you fold it. You're looking for a smooth sticky dough with a good windowpane test result.
+5. Cover and leave in the oven with the light on for about 30 minutes, or until dough roughly doubles in size.
+6. Shape the dough into a batard, and transfer into a banneton for final proving. I recommend doing the final prove in the fridge.
+7. About 20 minutes before the bread has fully proved, place a cast iron dutch oven into the oven with the lid by its side, and heat to 450f.
+8. Turn out the dough onto a piece of parchment paper, transfer into the hot dutch oven, and score.
+9. Bake with the lid on for 15-20 minutes, then remove the lid and bake until a dark crust forms. About another 15 minutes.
+10. Remove from the oven and cool on its side for at least an hour before cutting.
+
+**Notes**
+
+* If you are using dry active yeast, use up to 6 grams, and hydrate it with about 25 grams of the water.
+* Substitute up to 100 grams of the bread flour with whole wheat if desired.
 
