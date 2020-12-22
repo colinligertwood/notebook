@@ -24,5 +24,8 @@ Yields one 700g batard
 **Notes**
 
 * If you are using dry active yeast, use up to 6 grams, and hydrate it with about 25 grams of the water.
-* Substitute up to 100 grams of the bread flour with whole wheat if desired.
-
+* Substitute up to 150 grams of the white bread flour with whole wheat if desired.
+* I have had best results when using Rogers bread flour and Rogers whole wheat bread flour.
+* I've also used Robin Hood bread flour, and Flourist sifted red spring wheat flour. Both produced good loaves, and the Flourist red spring had a slightly better flavour and aroma.
+* All Purpose flour works, but takes a lot more kneeding and more careful handling. Flatter and denser loaves should be expected.
+* Sifting the bran out of whole wheat flour helps when blending with All Purpose flour. It's not necessary when using bread flour.
