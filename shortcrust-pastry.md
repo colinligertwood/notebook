@@ -5,7 +5,7 @@
 * 2 cups flour
 * 1/2 teaspoon salt
 * 1/4 teaspoon ground nutmeg (optional)
-* 1/2 cup margarine
+* 1/2 cup margarine (120 grams)
 * 1/3 cup (6 tablespoons) ice cold water
 
 **Method**
