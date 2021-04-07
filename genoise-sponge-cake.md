@@ -26,8 +26,5 @@ Yields one six-inch cake.
 **Notes**
 
 * As much as possible, do not open the oven or the cake will fall.
-* Add 1/8 cup cocoa powder to the flour for a chocolate geroise.
-
-
-
+* Add 1/8 cup cocoa powder to the flour for a chocolate genoise.
 
