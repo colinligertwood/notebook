@@ -27,4 +27,5 @@ Yields one six-inch cake.
 
 * As much as possible, do not open the oven or the cake will fall.
 * Add 1/8 cup cocoa powder to the flour for a chocolate genoise.
+* For a chocolate genoise, use 60g cake flour sifted with 30g cocoa powder.
 
