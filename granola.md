@@ -5,10 +5,10 @@ Yields 2 litres
 **Ingredients**
 
 * 4 cups large flake rolled oats
-* 1/2 tsp salt
+* 1/2 tsp table salt
 * 1 tbsp ground cinnamon
-* ½ cup grapeseed oil
-* ½ cup golden syrup
+* 1/3 cup grapeseed oil
+* 1/3 cup golden syrup
 
 **Method**
 
