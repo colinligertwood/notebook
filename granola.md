@@ -2,7 +2,7 @@
 
 Yields 2 litres
 
-*Ingredients*
+**Ingredients**
 
 * 4 cups large flake rolled oats
 * 1/2 tsp salt
@@ -10,7 +10,7 @@ Yields 2 litres
 * ½ cup grapeseed oil
 * ½ cup golden syrup
 
-*Method*
+**Method**
 
 1. Heat oven to 375f
 2. Whisk together the syrup, oil, salt, and cinnamon
@@ -19,7 +19,7 @@ Yields 2 litres
 5. Bake for 25 minutes, until golden
 6. Let stand until fully cool
 
-*Notes*
+**Notes**
 
 * Granola will be soft when coming out of the oven. Let stand to cool completely and it will crisp up.
 
