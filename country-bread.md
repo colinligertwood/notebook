@@ -5,7 +5,7 @@ Yields one 700g batard
 **Ingredients**
 
 * 400g bread flour
-* 300g warm water
+* 260g warm water (About 65% hydration by mass)
 * 8g salt
 * 3g of instant yeast
 
