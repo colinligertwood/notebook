@@ -24,5 +24,5 @@ Yields about two dozen cookies
 
 **Notes**
 
-- Make in advance and let rest in the fridge for up to three days before baking. The cookies will get better and better the longer you way.
+- Make in advance and let rest in the fridge for up to three days before baking. The cookies will get better and better the longer you wait.
 
