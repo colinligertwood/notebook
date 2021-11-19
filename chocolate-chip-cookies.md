@@ -2,7 +2,7 @@
 
 Yields about two dozen cookies
 
-*Ingredients*
+**Ingredients**
 
 - 1 1/2 cups (225 g) unbleached all-purpose flour
 - 1/2 tsp baking soda
@@ -14,7 +14,7 @@ Yields about two dozen cookies
 - 1 egg yolk
 - 7 oz (195 g) milk or semisweet chocolate, coarsely chopped
 
-*Method*
+**Method**
 
 1. With the rack in the middle position, preheat the oven to 375°F (190°C). Line two or three baking sheets with parchment paper.
 2. In a bowl, combine the flour, baking soda and salt.
