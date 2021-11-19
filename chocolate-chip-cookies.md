@@ -22,4 +22,7 @@ Yields about two dozen cookies
 4. Using a 3-tbsp (45 ml) ice cream scoop, spoon five to six balls of dough on each baking sheet, spacing them out evenly.
 5. Bake one sheet at a time for 8 to 9 minutes or until lightly browned all over. They will still be very soft in the centre. Cool completely on the baking sheet.
 
+**Notes**
+
+- Make in advance and let rest in the fridge for up to three days before baking. The cookies will get better and better the longer you way.
 
