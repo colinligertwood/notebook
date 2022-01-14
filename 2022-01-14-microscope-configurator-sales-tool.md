@@ -27,14 +27,14 @@ Configurator output?
 - A note is included with the cart ID number from the configurator/website.
 
 Could sales order line grouping/combined lines possibly work to combine products into a bundle?
-- Yes.
+- Yes. Lana proposed this idea because she thinks it will work.
 - No. We don't want to have a single part number that represents the bundle.
-- Confirm whether combined lines will work.
 - Can combined lines checks be disabled for just these products?
   - The N.0 of the product could be the product assembly/bundling service.
   - Use of this product as the N.0 of the grouping could allow any product to be included in the group.
   - This product would be a service.
 - Can a bundle built with combined-lines be displayed on a sales order without combining lines into a single part number?
+- More input required to determine whether combined lines will work.
 - Maybe another type of grouping field on sales order liness will be necessary.
 
 ## Next steps
