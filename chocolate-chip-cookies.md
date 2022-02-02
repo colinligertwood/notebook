@@ -1,28 +1,30 @@
-# Chewy Chocolate Chip Cookies (Ricardo Cuisine)
+# Chocolate Chip Cookies
 
-Yields about two dozen cookies
+Yields about 2 dozen cookies.
 
-**Ingredients**
+## Ingredients
 
-- 1 1/2 cups (225 g) unbleached all-purpose flour
-- 1/2 tsp baking soda
-- Pinch salt  
-- 3/4 cup (170 g) unsalted butter, melted
-- 1 cup (210 g) brown sugar
-- 2 tbsp sugar
-- 1 egg  
-- 1 egg yolk
-- 7 oz (195 g) milk or semisweet chocolate, coarsely chopped
+* 1 1/2 cups flour
+* 1/2 tsp baking soda
+* 1/2 tsp table salt
+* 1/2 cup butter or dense margarine
+* 1 cup brown sugar
+* 2 tbsp granulated sugar
+* 1 large egg
+* 200g dark chocolate, coarsely chopped, or broad chips.
 
-**Method**
+## Method
 
-1. With the rack in the middle position, preheat the oven to 375°F (190°C). Line two or three baking sheets with parchment paper.
-2. In a bowl, combine the flour, baking soda and salt.
-3. In another bowl, combine the butter and both sugars with a wooden spoon. Add the eggs and stir until smooth. Stir in the dry ingredients and chocolate. Cover and refrigerate for 1 hour or overnight.
-4. Using a 3-tbsp (45 ml) ice cream scoop, spoon five to six balls of dough on each baking sheet, spacing them out evenly.
-5. Bake one sheet at a time for 8 to 9 minutes or until lightly browned all over. They will still be very soft in the centre. Cool completely on the baking sheet.
+1. Pre-heat oven to 350f.
+2. In a large bowl, whisk together flour, baking soda, and salt.
+3. In another bowl, combine butter and sugars with a wooden spoon.
+4. Add the egg to the butter and sugar and mix until smooth.
+5. Add the dry mixture to the wet, and mix with a wooden spoon until a dough comes together.
+6. Kneed in the cholocate chips until a smooth dough is achieved.
+7. Refrigerate dough for at least 3 hours.
+8. Spoon out 1 inch spheres onto a paper lined cookie sheet, and bake for around 9-11 minutes, or until edges turn slightly golden.
 
-**Notes**
+# Notes
 
-- Make in advance and let rest in the fridge for up to three days before baking. The cookies will get better and better the longer you wait.
+* Leave the dough in the fridge for up to 3 days, baking off cookies as you like. The longer the dough ferments, the more flavourful the cookies.
 
