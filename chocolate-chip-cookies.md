@@ -11,6 +11,7 @@ Yields about 2 dozen cookies.
 * 1 cup brown sugar
 * 2 tbsp granulated sugar
 * 1 large egg
+* 200g dark chocolate, coarsely chopped, or broad chips.
 
 ## Method
 
