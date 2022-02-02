@@ -19,10 +19,10 @@ Yields about 2 dozen cookies.
 2. In a large bowl, whisk together flour, baking soda, and salt.
 3. In another bowl, combine butter and sugars with a wooden spoon.
 4. Add the egg to the butter and sugar and mix until smooth.
-5. Add the dry mixture to the wet, and mix with a wooden spoon until a dough comes together.
+5. Add the dry mixture to the wet, and mix into a rough dough.
 6. Kneed in the cholocate chips until a smooth dough is achieved.
 7. Refrigerate dough for at least 3 hours.
-8. Spoon out 1 inch spheres onto a paper lined cookie sheet, and bake for around 9-11 minutes, or until edges turn slightly golden.
+8. Spoon out 1 inch spheres onto a paper lined cookie sheet, and bake for around 12-13 minutes, or until the edges and peaks turn slightly golden.
 
 # Notes
 
