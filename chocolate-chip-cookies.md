@@ -1,6 +1,6 @@
 # Chocolate Chip Cookies
 
-Yields about 2 dozen cookies.
+Yields about 20 cookies.
 
 ## Ingredients
 
