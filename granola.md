@@ -5,7 +5,7 @@ Yields 2 litres
 **Ingredients**
 
 * 4 cups large flake rolled oats
-* 1 cup wheat bran
+* 1/2 cup wheat bran
 * 1/2 tsp table salt
 * 1 tbsp ground cinnamon
 * 1/3 cup grapeseed oil
