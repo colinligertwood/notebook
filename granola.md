@@ -15,7 +15,7 @@ Yields 2 litres
 **Method**
 
 1. Heat oven to 325f
-2. Whisk together the syrup, oil, salt, and cinnamon
+2. Whisk together the syrup, oil, salt, and cinnamon, then blend in the wheat bran.
 3. Pour over the oats and mix until well combined
 4. Spread onto a 14" parchment lined baking sheet
 5. Bake for 25 minutes, until golden
