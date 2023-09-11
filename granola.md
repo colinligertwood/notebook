@@ -23,5 +23,5 @@ Yields 2 litres
 
 **Notes**
 
-* Leave in the oven to cool completely.
+* Leave in the oven to cool completely for crispy texture.
 * Add 1 cup raw pumpkin seeds before baking. 
